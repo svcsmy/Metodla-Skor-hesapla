@@ -1,0 +1,1 @@
+# Metodla-Skor-hesapla
